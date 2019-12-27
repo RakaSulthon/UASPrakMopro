@@ -1,2 +1,0 @@
-# UASPrakMopro
-Raka Sulthonuddin Ahmadsyah
